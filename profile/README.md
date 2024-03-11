@@ -8,11 +8,9 @@ Xem phim ONLINE Quý Cô Thừa Kế 2 2024 vietsub Phimmoi thuyet minh – Ch�
 
 Làm thế nào để xem phim "Quý Cô Thừa Kế 2"?
 
-<b> Click để xem phim>>: [Quý Cô Thừa Kế 2 2024 full thuyết minh]
-<a href="https://watch.cinecip.online/vi/movie/1252618"> Quý Cô Thừa Kế 2 2024 full thuyết minh </a> </b>
+<b> Click để xem phim>>: <a href="https://watch.cinecip.online/vi/movie/1252618"> Quý Cô Thừa Kế 2 2024 full thuyết minh </a> </b>
 
-<b> Click để xem phim>>: [Quý Cô Thừa Kế 2 2024 full thuyết minh]
-<a href="https://watch.cinecip.online/vi/movie/1252618"> Quý Cô Thừa Kế 2 2024 full thuyết minh </a> </b>
+<b> Click để xem phim>>: <a href="https://watch.cinecip.online/vi/movie/1252618"> Quý Cô Thừa Kế 2 2024 full thuyết minh </a> </b>
 
 Quý Cô Thừa Kế 2 
 
